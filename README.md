@@ -2,8 +2,6 @@
 
 ### Oi, eu sou a Anna!
 
-![sailor](https://pin.it/2ecvOyrll)
-
 Comecei meus estudos em tecnologia em dois mil e vinte e seis. Estudo Front-end Development focado em Javascript para Game Dev!
 
 #### Me conheça melhor!
