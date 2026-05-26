@@ -2,7 +2,7 @@
 
 ### Oi, eu sou a Anna!
 
-![sailor moon](https://pin.it/4d26EcOk9)
+![sailor](https://pin.it/2ecvOyrll)
 
 Comecei meus estudos em tecnologia em dois mil e vinte e seis. Estudo Front-end Development focado em Javascript para Game Dev!
 
