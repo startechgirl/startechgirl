@@ -2,7 +2,7 @@
 
 ### Oi, eu sou a Anna!
 
-!(https://share.google/images/GmXlBovePXT3DX1rM)
+![sailor](https://i.pinimg.com/originals/79/dc/b5/79dcb5fe05a133260eb4521dfb521c49.gif)
 
 Comecei meus estudos em tecnologia em dois mil e vinte e seis. Estudo Front-end Development focado em Javascript para Game Dev!
 
