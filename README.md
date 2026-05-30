@@ -2,16 +2,16 @@
 
 ### Oi, eu sou a Anna!
 
-![sailor](https://i.pinimg.com/originals/79/dc/b5/79dcb5fe05a133260eb4521dfb521c49.gif)
+![marin-kitagawa-gif](https://pin.it/668d4F9GT.gif)
 
-Comecei meus estudos em tecnologia em dois mil e vinte e seis. 
-
-Atualmente, eu estudo Front-end focado em Javascript para Game Dev!
+Comecei meus estudos em tecnologia em dois mil e vinte e seis. Estudo Front-end focado em React, UX/UI Design e .NET com C++ e C#. Por aqui, eu documento minha jornada um código por vez, sempre divulgando tudo que eu encontro de incrível para ajudar outras juniors como eu!
 
 Nas horas vagas, eu sou uma garota mágica, sempre lendo uma romantasia, assistindo um anime shoujo, ou jogando coisas que deixam meu coração quentinho!
 
 #### Me conheça melhor!
 
-> [Linkedin](https://linkedin.com/in/anna-de-souza)
+>[𝑪𝒐𝒏𝒆𝒄𝒕𝒆-𝒔𝒆 𝒄𝒐𝒎𝒊𝒈𝒐 𝒏𝒐 𝑳𝒊𝒏𝒌𝒆𝒅𝒊𝒏 🎧](https://linkedin.com/in/anna-de-souza)
 >
->  [Instagram](https://instagram.com/startechgirl)
+>[𝑴𝒆 𝒔𝒊𝒈𝒂 𝒏𝒐 𝑰𝒏𝒔𝒕𝒂𝒈𝒓𝒂𝒎 🌸](https://instagram.com/startechgirl)
+>
+>[𝑮𝒓𝒖𝒑𝒊𝒏𝒉𝒐 𝒅𝒆 𝒆𝒔𝒕𝒖𝒅𝒐𝒔 𝒏𝒐 𝑮𝒚𝒎𝒓𝒂𝒕𝒔 🪽] (https://share.gymrats.app/join?code=HPOAKQZY)
