@@ -14,4 +14,4 @@ Nas horas vagas, eu sou uma garota mágica, sempre lendo uma romantasia, assisti
 >
 >[𝑴𝒆 𝒔𝒊𝒈𝒂 𝒏𝒐 𝑰𝒏𝒔𝒕𝒂𝒈𝒓𝒂𝒎 🌸](https://instagram.com/startechgirl)
 >
->[𝑮𝒓𝒖𝒑𝒊𝒏𝒉𝒐 𝒅𝒆 𝒆𝒔𝒕𝒖𝒅𝒐𝒔 𝒏𝒐 𝑮𝒚𝒎𝒓𝒂𝒕𝒔 🫧] (Entre no clube "Clubinho de Estudos 💗" https://share.gymrats.app/join?code=HPOAKQZY)
+>[𝑮𝒓𝒖𝒑𝒊𝒏𝒉𝒐 𝒅𝒆 𝒆𝒔𝒕𝒖𝒅𝒐𝒔 𝒏𝒐 𝑮𝒚𝒎𝒓𝒂𝒕𝒔 🫧](https://share.gymrats.app/join?code=HPOAKQZY)
