@@ -2,7 +2,7 @@
 
 ### Oi, eu sou a Anna!
 
-![marin-kitagawa-gif](https://pin.it/668d4F9GT.gif)
+![marin-kitagawa-gif](https://i.pinimg.com/originals/6b/72/83/6b7283f681d0eeb8f928b4a65ba8f5f1.gif)
 
 Comecei meus estudos em tecnologia em dois mil e vinte e seis. Estudo Front-end focado em React, UX/UI Design e .NET com C++ e C#. Por aqui, eu documento minha jornada um código por vez, sempre divulgando tudo que eu encontro de incrível para ajudar outras juniors como eu!
 
